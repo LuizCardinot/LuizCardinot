@@ -2,6 +2,9 @@
 
 🚀 **Bachelor’s Degree in Mechanical Engineering – UERJ (loading)**  
 🚀 **Technical Degree in Logistics – SENAI** 
+---
+
+
 🇧🇷 Brazil
 
 
