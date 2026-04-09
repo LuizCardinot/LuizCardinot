@@ -1,7 +1,7 @@
 # Hi 👋, I'm Luiz Filipe Cardinot 
 
 🚀 **Bachelor’s Degree in Mechanical Engineering – UERJ (loading)**  
-**Technical Degree in Logistics – SENAI** 
+🚀 **Technical Degree in Logistics – SENAI** 
 🇧🇷 Brazil
 
 
